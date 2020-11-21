@@ -36,3 +36,4 @@ While Robin Hoods user base is growing rapidly my personal prognosis for the com
 
 The company is planning on going public in the near future and is currently worth $11 Billion. The majority of their profits come from marginal lending and subscription that most of the users don't pay for. The future of this company depends on if they can stay ahead of their competition and continue to grow its user base. 
  
+Dont use Robinhood - Use WeBull!!!! Trust me!!!
